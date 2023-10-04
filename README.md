@@ -12,9 +12,11 @@
 
 - 💬 Ask me about **Web-programming**
 
-- 📫 My YouTube channel **https://www.youtube.com/channel/UC6J9DuamMlYM63E5OIvOXRw**
-
 - ⚡ Fun fact **I am funny**
+
+- 📫 How to reach me: **In YouTube channel comments**
+
+- 🎬 My YouTube channel **https://www.youtube.com/channel/UC6J9DuamMlYM63E5OIvOXRw** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
