@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **Web-programming**
 
-- 📫 How to reach me **sardorkhamrakulov2011@gmail.com**
+- 📫 My YouTube channel **https://www.youtube.com/channel/UC6J9DuamMlYM63E5OIvOXRw**
 
 - ⚡ Fun fact **I am funny**
 
